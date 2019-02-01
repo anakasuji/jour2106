@@ -10,6 +10,6 @@
 I took Data Journalism class last semester. And it was really interesting for me. So I thought if I could learn more about it, I can expand my future job choice. I completely do not know about any codings, so everything is new for me. It's cool!!
 
 ### Comment
-I'm Japanese, so if you are interested in Japan or Japanese, I can teach you. And if you want to go to Japan I can also recommend so me places you should go. So just ask me any questions. Thank you
+I'm Japanese, so if you are interested in Japan or Japanese, I can teach you. And if you want to go to Japan I can also recommend some places you should go. So just ask me any questions. Thank you
 
 ![](https://cdn1.imggmi.com/uploads/2019/2/1/53e9e12ca08359d8b13b059aa03753e1-full.jpg)

@@ -6,17 +6,17 @@
 * Major: International Journalism
 * Siblings: 1 older brother and sister, 2 dogs
 
-## Why am I here?
+# Why am I here?
 I took Data Journalism class last semester. And it was really interesting for me. So I thought if I could learn more about it, I can expand my future job choice. I completely do not know about any codings, so everything is new for me. It's cool!!
 
-### Comment
+# Comment
 I'm Japanese, so if you are interested in Japan or Japanese, I can teach you. And if you want to go to Japan I can also recommend some places you should go. So just ask me any questions. Thank you
 
-#### Skill
+# Skill
 * Video Editting
 * Tableau
 
-##### Interested
+# Interested
 * Culture
 * Animal
 * The elderly in Hong Kong

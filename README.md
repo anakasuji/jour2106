@@ -12,4 +12,12 @@ I took Data Journalism class last semester. And it was really interesting for me
 ### Comment
 I'm Japanese, so if you are interested in Japan or Japanese, I can teach you. And if you want to go to Japan I can also recommend some places you should go. So just ask me any questions. Thank you
 
+#### Interested
+* Culture
+* Animal
+* The elderly in Hong Kong
+* Refugee in Hong Kong
+
+
+
 ![](https://cdn1.imggmi.com/uploads/2019/2/1/53e9e12ca08359d8b13b059aa03753e1-full.jpg)
